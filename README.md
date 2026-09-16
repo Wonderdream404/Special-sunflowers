@@ -1,8 +1,8 @@
 🌻 ✦ . SPECIAL SUNFLOWERS!! 
 welcome! this is just basically special sunflowers for my online friends^_^ .🌻
-(Who has GitHub ^_^) 🌻✉️❤
-
---- 
+(Who has GitHub ^_^) 🌻✉️❤ <br>
 🌻✉️ if there is missing please tell me! (ONLY FRIENDS!) 
-<br> 
-[@Foret-Noire](https://github.com/Foret-Noire) [sxyphyrin](https://github.com/sxphyrin) [FI3NWIN3](https://github.com/FI3NWIN3) [pwn-y](https://github.com/pwn-y) [cutie-mew-mew-magic](https://github.com/cutie-mew-mew-magic) 
+
+---
+
+[@Foret-Noire](https://github.com/Foret-Noire) [sxyphyrin](https://github.com/sxphyrin) [FI3NWIN3](https://github.com/FI3NWIN3) [pwn-y](https://github.com/pwn-y) [cutie-mew-mew-magic](https://github.com/cutie-mew-mew-magic) [WhispedVanilla](https://github.com/WhispedVanilla) 
