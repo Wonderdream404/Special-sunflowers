@@ -17,7 +17,7 @@ welcome! this is just basically special sunflowers for my online friends^_^ .�
 * [putmetorestimnotyourstosave](https://github.com/putmetorestimnotyourstosave) = Pony town Sona, pressure, iron lung lover skins
 * [ziic0r](https://github.com/ziic0rr) = pony town Grace cosplay skins
 
-🌻 . thank you for being my friends!!! 
-🌻 . SIGN THEIR ATA AND STRAWPAGE NOW!!! 
+🌻 . thank you for being my friends!!! <br>
+🌻 . SIGN THEIR ATA AND STRAWPAGE NOW!!! (also I only follow someone if we know each other non friends or friends BUT I DON'T FOLLOW ALL OF IT) 
 
 --- 
