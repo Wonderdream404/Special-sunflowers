@@ -1,7 +1,7 @@
 🌻 ✦ . SPECIAL SUNFLOWERS!! 
 welcome! this is just basically special sunflowers for my online friends^_^ .🌻
 (Who has GitHub ^_^) 🌻✉️❤ <br>
-🌻✉️ if there is missing please tell me! (ONLY FRIENDS!) 
+🌻✉️ if there is missing please let me know! (ONLY FRIENDS!) 
 
 ---
 
