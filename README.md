@@ -22,8 +22,8 @@ welcome! this is just basically special sunflowers for my online friends^_^ .�
 🌻 . thank you for being my friends!!! for non friends thank your chatting with me and get along ^_^ <br>
 🌻 . SIGN THEIR ATA AND STRAWPAGE NOW!!! (also I only follow someone if we know each other non friends or friends BUT I DON'T FOLLOW ALL OF IT) they are all peak trust me. 
 
-> before you follow them or interact with them. PLEASE check their strawpage and their 'Read.Md' there's might be some their DNI or THIN Ice please dont break their boundaries :(
+> **before you follow them or interact with them**. PLEASE check their strawpage and their <ins>'Readme.MD'</ins> there's might be some their **DNI or THIN ICE** please dont break their boundaries :(
 >
-> or someone has struggle their disorder so there's a chance they are a dry text ( they are not talk alot) . you might get hide if you made them uncomfortable :( . 
+> or someone has struggle their **disorder** so there's a chance they are a dry text ( they are not talk alot) . <ins>you might get hide</ins> if you made them uncomfortable :( . 
 
 --- 
